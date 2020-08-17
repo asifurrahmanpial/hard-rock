@@ -1,1 +1,1 @@
-This website can show music lyrics# hard-rock
+This website can show music lyrics
